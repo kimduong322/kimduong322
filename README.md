@@ -1,3 +1,3 @@
-_**If you like what you do, and you're lucky enough to be good at it, do it for that reason.**_
+_**If you don't give up, you still have a chance. And when you are small, you have to be very focused and rely on your brain, not your strength.**_
 
-Phil Grimshaw
+Jack Ma

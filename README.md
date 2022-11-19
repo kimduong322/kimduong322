@@ -1,3 +1,3 @@
-_**The determination to win is the better part of winning.**_
+_**If you're changing the world, you're working on important things. You're excited to get up in the morning.**_
 
-Daisaku Ikeda
+Larry Page

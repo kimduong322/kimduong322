@@ -1,3 +1,3 @@
-_**If you're changing the world, you're working on important things. You're excited to get up in the morning.**_
+_**Vision without action is daydream. Action without vision is nightmare..**_
 
-Larry Page
+Japanese Proverb

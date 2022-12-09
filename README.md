@@ -1,3 +1,3 @@
-_**Do not let what you cannot do interfere with what you can do.**_
+_**Each player must accept the cards life deals him or her: but once they are in hand, he or she alone must decide how to play the cards in order to win the game.**_
 
-John Wooden
+Voltaire
